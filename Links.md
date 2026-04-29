@@ -2,6 +2,74 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-04-29 23:52 IR
+- 🎬 [35 ： رابط کاربری فاطمه سه ساله از مشهد بده پیکاسو تحویل بگیر😂 - رابط کاربری تیکینتر سریع وآماده.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/35%20%EF%BC%9A%20%D8%B1%D8%A7%D8%A8%D8%B7%20%DA%A9%D8%A7%D8%B1%D8%A8%D8%B1%DB%8C%20%D9%81%D8%A7%D8%B7%D9%85%D9%87%20%D8%B3%D9%87%20%D8%B3%D8%A7%D9%84%D9%87%20%D8%A7%D8%B2%20%D9%85%D8%B4%D9%87%D8%AF%20%D8%A8%D8%AF%D9%87%20%D9%BE%DB%8C%DA%A9%D8%A7%D8%B3%D9%88%20%D8%AA%D8%AD%D9%88%DB%8C%D9%84%20%D8%A8%DA%AF%DB%8C%D8%B1%F0%9F%98%82%20-%20%D8%B1%D8%A7%D8%A8%D8%B7%20%DA%A9%D8%A7%D8%B1%D8%A8%D8%B1%DB%8C%20%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D8%B3%D8%B1%DB%8C%D8%B9%20%D9%88%D8%A2%D9%85%D8%A7%D8%AF%D9%87.mp4) `42.2MB`
+
+- 🎬 [36 ：آموزش تیکینتر بوتسترپ  ｜Tkinter bootstrap.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/36%20%EF%BC%9A%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D8%A8%D9%88%D8%AA%D8%B3%D8%AA%D8%B1%D9%BE%20%20%EF%BD%9CTkinter%20bootstrap.mp4) `52.2MB`
+
+- 🎬 [TKinter UI - 0 استایل دادن به ویجت ها 🆗.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/TKinter%20UI%20-%200%20%D8%A7%D8%B3%D8%AA%D8%A7%DB%8C%D9%84%20%D8%AF%D8%A7%D8%AF%D9%86%20%D8%A8%D9%87%20%D9%88%DB%8C%D8%AC%D8%AA%20%D9%87%D8%A7%20%F0%9F%86%97.mp4) `73.7MB`
+
+- 🎬 [TKinter UI - 1 آموزش تم دادن به تیکینتر💫.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/TKinter%20UI%20-%201%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D8%AA%D9%85%20%D8%AF%D8%A7%D8%AF%D9%86%20%D8%A8%D9%87%20%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%F0%9F%92%AB.mp4) `45.0MB`
+
+- 🎬 [TKinter UI - 2 کار کردن با رنگ ها در تیکینتر 🎨.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/TKinter%20UI%20-%202%20%DA%A9%D8%A7%D8%B1%20%DA%A9%D8%B1%D8%AF%D9%86%20%D8%A8%D8%A7%20%D8%B1%D9%86%DA%AF%20%D9%87%D8%A7%20%D8%AF%D8%B1%20%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%F0%9F%8E%A8.mp4) `40.6MB`
+
+- 🎬 [TKinter UI - 3 آموزش کتابخانه کاستوم تیکینتر ctk 🔧.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/TKinter%20UI%20-%203%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%DA%A9%D8%AA%D8%A7%D8%A8%D8%AE%D8%A7%D9%86%D9%87%20%DA%A9%D8%A7%D8%B3%D8%AA%D9%88%D9%85%20%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20ctk%20%F0%9F%94%A7.mp4) `62.4MB`
+
+- 🎬 [TKinter UI - 37 بوت استرپ ادیتور 🎠.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/TKinter%20UI%20-%2037%20%D8%A8%D9%88%D8%AA%20%D8%A7%D8%B3%D8%AA%D8%B1%D9%BE%20%D8%A7%D8%AF%DB%8C%D8%AA%D9%88%D8%B1%20%F0%9F%8E%A0.mp4) `25.2MB`
+
+- 🎬 [TKinter UI - 38 ویجت های بوت استرپ 💫.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/TKinter%20UI%20-%2038%20%D9%88%DB%8C%D8%AC%D8%AA%20%D9%87%D8%A7%DB%8C%20%D8%A8%D9%88%D8%AA%20%D8%A7%D8%B3%D8%AA%D8%B1%D9%BE%20%F0%9F%92%AB.mp4) `73.3MB`
+
+- 🎬 [TKinter UI - 39 بازم ویجت برای بوت استرپ، ویجت اینجا ویجت اونجا 😎👀.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/TKinter%20UI%20-%2039%20%D8%A8%D8%A7%D8%B2%D9%85%20%D9%88%DB%8C%D8%AC%D8%AA%20%D8%A8%D8%B1%D8%A7%DB%8C%20%D8%A8%D9%88%D8%AA%20%D8%A7%D8%B3%D8%AA%D8%B1%D9%BE%D8%8C%20%D9%88%DB%8C%D8%AC%D8%AA%20%D8%A7%DB%8C%D9%86%D8%AC%D8%A7%20%D9%88%DB%8C%D8%AC%D8%AA%20%D8%A7%D9%88%D9%86%D8%AC%D8%A7%20%F0%9F%98%8E%F0%9F%91%80.mp4) `64.2MB`
+
+- 🎬 [TKinter UI - 40 ویجت های انیمیشنی تیکینتر 🏇.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/TKinter%20UI%20-%2040%20%D9%88%DB%8C%D8%AC%D8%AA%20%D9%87%D8%A7%DB%8C%20%D8%A7%D9%86%DB%8C%D9%85%DB%8C%D8%B4%D9%86%DB%8C%20%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%F0%9F%8F%87.mp4) `54.6MB`
+
+- 🎬 [TKinter UI - 41 ویجت های انیمیشنی تیکینتر قسمت دوم🏇.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/TKinter%20UI%20-%2041%20%D9%88%DB%8C%D8%AC%D8%AA%20%D9%87%D8%A7%DB%8C%20%D8%A7%D9%86%DB%8C%D9%85%DB%8C%D8%B4%D9%86%DB%8C%20%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D9%82%D8%B3%D9%85%D8%AA%20%D8%AF%D9%88%D9%85%F0%9F%8F%87.mp4) `64.2MB`
+
+- 🎬 [TKinter UI - 42 ویجت های انیمیشنی تیکینتر قسمت سوم🏇.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/TKinter%20UI%20-%2042%20%D9%88%DB%8C%D8%AC%D8%AA%20%D9%87%D8%A7%DB%8C%20%D8%A7%D9%86%DB%8C%D9%85%DB%8C%D8%B4%D9%86%DB%8C%20%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D9%82%D8%B3%D9%85%D8%AA%20%D8%B3%D9%88%D9%85%F0%9F%8F%87.mp4) `37.9MB`
+
+- 🎬 [TKinter UI - 43 کار با عکس 🖼️.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/TKinter%20UI%20-%2043%20%DA%A9%D8%A7%D8%B1%20%D8%A8%D8%A7%20%D8%B9%DA%A9%D8%B3%20%F0%9F%96%BC%EF%B8%8F.mp4) `38.0MB`
+
+- 🎬 [TKinter UI - 44 کار با عکس 🖼️ قسمت دوم.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/TKinter%20UI%20-%2044%20%DA%A9%D8%A7%D8%B1%20%D8%A8%D8%A7%20%D8%B9%DA%A9%D8%B3%20%F0%9F%96%BC%EF%B8%8F%20%D9%82%D8%B3%D9%85%D8%AA%20%D8%AF%D9%88%D9%85.mp4) `48.8MB`
+
+- 🎬 [TKinter UI - 45 عکس متحرک قسمت اول🏃.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/TKinter%20UI%20-%2045%20%D8%B9%DA%A9%D8%B3%20%D9%85%D8%AA%D8%AD%D8%B1%DA%A9%20%D9%82%D8%B3%D9%85%D8%AA%20%D8%A7%D9%88%D9%84%F0%9F%8F%83.mp4) `73.5MB`
+
+- 🎬 [TKinter UI - 46 عکس متحرک قسمت دوم 🏃.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/TKinter%20UI%20-%2046%20%D8%B9%DA%A9%D8%B3%20%D9%85%D8%AA%D8%AD%D8%B1%DA%A9%20%D9%82%D8%B3%D9%85%D8%AA%20%D8%AF%D9%88%D9%85%20%F0%9F%8F%83.mp4) `53.4MB`
+
+- 🎬 [Tkinter Project QR code -  پروژه کیو آر کد قسمت اول.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/Tkinter%20Project%20QR%20code%20-%20%20%D9%BE%D8%B1%D9%88%DA%98%D9%87%20%DA%A9%DB%8C%D9%88%20%D8%A2%D8%B1%20%DA%A9%D8%AF%20%D9%82%D8%B3%D9%85%D8%AA%20%D8%A7%D9%88%D9%84.mp4) `18.7MB`
+
+- 🎬 [Tkinter Project QR code -  پروژه کیو آر کد قسمت دوم.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/Tkinter%20Project%20QR%20code%20-%20%20%D9%BE%D8%B1%D9%88%DA%98%D9%87%20%DA%A9%DB%8C%D9%88%20%D8%A2%D8%B1%20%DA%A9%D8%AF%20%D9%82%D8%B3%D9%85%D8%AA%20%D8%AF%D9%88%D9%85.mp4) `34.2MB`
+
+- 🎬 [جلسه 24： آموزش #تیکینتر صفر تا صد ｜‌‌استفاده از کلاس ها در تیکینتر  ｜ #tkinter #using_classes.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/%D8%AC%D9%84%D8%B3%D9%87%2024%EF%BC%9A%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%23%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%EF%BD%9C%E2%80%8C%E2%80%8C%D8%A7%D8%B3%D8%AA%D9%81%D8%A7%D8%AF%D9%87%20%D8%A7%D8%B2%20%DA%A9%D9%84%D8%A7%D8%B3%20%D9%87%D8%A7%20%D8%AF%D8%B1%20%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%20%EF%BD%9C%20%23tkinter%20%23using_classes.mp4) `41.8MB`
+
+- 🗜️ [جلسه 25： آموزش #تیکینتر صفر تا صد ｜‌‌استفاده از کلاس ها در تیکینتر پارت دوم｜ #tkinter #using_classes.mp4.zip](https://github.com/Sadramhp/downloader1/raw/main/dl/%D8%AC%D9%84%D8%B3%D9%87%2025%EF%BC%9A%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%23%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%EF%BD%9C%E2%80%8C%E2%80%8C%D8%A7%D8%B3%D8%AA%D9%81%D8%A7%D8%AF%D9%87%20%D8%A7%D8%B2%20%DA%A9%D9%84%D8%A7%D8%B3%20%D9%87%D8%A7%20%D8%AF%D8%B1%20%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D9%BE%D8%A7%D8%B1%D8%AA%20%D8%AF%D9%88%D9%85%EF%BD%9C%20%23tkinter%20%23using_classes.mp4.zip) `17.0MB`
+
+- 🗜️ [جلسه 25： آموزش #تیکینتر صفر تا صد ｜‌‌استفاده از کلاس ها در تیکینتر پارت دوم｜ #tkinter #using_classes.mp4.z01](https://github.com/Sadramhp/downloader1/raw/main/dl/%D8%AC%D9%84%D8%B3%D9%87%2025%EF%BC%9A%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%23%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%EF%BD%9C%E2%80%8C%E2%80%8C%D8%A7%D8%B3%D8%AA%D9%81%D8%A7%D8%AF%D9%87%20%D8%A7%D8%B2%20%DA%A9%D9%84%D8%A7%D8%B3%20%D9%87%D8%A7%20%D8%AF%D8%B1%20%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D9%BE%D8%A7%D8%B1%D8%AA%20%D8%AF%D9%88%D9%85%EF%BD%9C%20%23tkinter%20%23using_classes.mp4.z01) `95.0MB`
+
+- 🗜️ [جلسه 25： آموزش #تیکینتر صفر تا صد ｜‌‌استفاده از کلاس ها در تیکینتر پارت دوم｜ #tkinter #using_classes.mp4.zip](https://github.com/Sadramhp/downloader1/raw/main/dl/%D8%AC%D9%84%D8%B3%D9%87%2025%EF%BC%9A%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%23%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%EF%BD%9C%E2%80%8C%E2%80%8C%D8%A7%D8%B3%D8%AA%D9%81%D8%A7%D8%AF%D9%87%20%D8%A7%D8%B2%20%DA%A9%D9%84%D8%A7%D8%B3%20%D9%87%D8%A7%20%D8%AF%D8%B1%20%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D9%BE%D8%A7%D8%B1%D8%AA%20%D8%AF%D9%88%D9%85%EF%BD%9C%20%23tkinter%20%23using_classes.mp4.zip) `17.0MB`
+
+- 🗜️ [جلسه 26： آموزش #تیکینتر صفر تا صد ｜‌‌آموزش ویجت های شخصی سازی شده ｜ #tkinter_custom_widget.mp4.zip](https://github.com/Sadramhp/downloader1/raw/main/dl/%D8%AC%D9%84%D8%B3%D9%87%2026%EF%BC%9A%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%23%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%EF%BD%9C%E2%80%8C%E2%80%8C%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D9%88%DB%8C%D8%AC%D8%AA%20%D9%87%D8%A7%DB%8C%20%D8%B4%D8%AE%D8%B5%DB%8C%20%D8%B3%D8%A7%D8%B2%DB%8C%20%D8%B4%D8%AF%D9%87%20%EF%BD%9C%20%23tkinter_custom_widget.mp4.zip) `92.0MB`
+
+- 🗜️ [جلسه 26： آموزش #تیکینتر صفر تا صد ｜‌‌آموزش ویجت های شخصی سازی شده ｜ #tkinter_custom_widget.mp4.zip](https://github.com/Sadramhp/downloader1/raw/main/dl/%D8%AC%D9%84%D8%B3%D9%87%2026%EF%BC%9A%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%23%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%EF%BD%9C%E2%80%8C%E2%80%8C%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D9%88%DB%8C%D8%AC%D8%AA%20%D9%87%D8%A7%DB%8C%20%D8%B4%D8%AE%D8%B5%DB%8C%20%D8%B3%D8%A7%D8%B2%DB%8C%20%D8%B4%D8%AF%D9%87%20%EF%BD%9C%20%23tkinter_custom_widget.mp4.zip) `92.0MB`
+
+- 🗜️ [جلسه 27： آموزش #تیکینتر صفر تا صد ｜‌‌آموزش ریسپانسیو لایوت ها ｜ #tkinter_responsive_layout.mp4.zip](https://github.com/Sadramhp/downloader1/raw/main/dl/%D8%AC%D9%84%D8%B3%D9%87%2027%EF%BC%9A%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%23%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%EF%BD%9C%E2%80%8C%E2%80%8C%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D8%B1%DB%8C%D8%B3%D9%BE%D8%A7%D9%86%D8%B3%DB%8C%D9%88%20%D9%84%D8%A7%DB%8C%D9%88%D8%AA%20%D9%87%D8%A7%20%EF%BD%9C%20%23tkinter_responsive_layout.mp4.zip) `29.1MB`
+
+- 🗜️ [جلسه 27： آموزش #تیکینتر صفر تا صد ｜‌‌آموزش ریسپانسیو لایوت ها ｜ #tkinter_responsive_layout.mp4.z01](https://github.com/Sadramhp/downloader1/raw/main/dl/%D8%AC%D9%84%D8%B3%D9%87%2027%EF%BC%9A%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%23%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%EF%BD%9C%E2%80%8C%E2%80%8C%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D8%B1%DB%8C%D8%B3%D9%BE%D8%A7%D9%86%D8%B3%DB%8C%D9%88%20%D9%84%D8%A7%DB%8C%D9%88%D8%AA%20%D9%87%D8%A7%20%EF%BD%9C%20%23tkinter_responsive_layout.mp4.z01) `95.0MB`
+
+- 🗜️ [جلسه 27： آموزش #تیکینتر صفر تا صد ｜‌‌آموزش ریسپانسیو لایوت ها ｜ #tkinter_responsive_layout.mp4.zip](https://github.com/Sadramhp/downloader1/raw/main/dl/%D8%AC%D9%84%D8%B3%D9%87%2027%EF%BC%9A%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%23%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%EF%BD%9C%E2%80%8C%E2%80%8C%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D8%B1%DB%8C%D8%B3%D9%BE%D8%A7%D9%86%D8%B3%DB%8C%D9%88%20%D9%84%D8%A7%DB%8C%D9%88%D8%AA%20%D9%87%D8%A7%20%EF%BD%9C%20%23tkinter_responsive_layout.mp4.zip) `29.1MB`
+
+- 🗜️ [جلسه 28： آموزش #تیکینتر صفر تا صد ｜‌‌ آموزش فریم های قابل اسکرول ｜ #scrollable #frames #tkinter.mp4.zip](https://github.com/Sadramhp/downloader1/raw/main/dl/%D8%AC%D9%84%D8%B3%D9%87%2028%EF%BC%9A%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%23%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%EF%BD%9C%E2%80%8C%E2%80%8C%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D9%81%D8%B1%DB%8C%D9%85%20%D9%87%D8%A7%DB%8C%20%D9%82%D8%A7%D8%A8%D9%84%20%D8%A7%D8%B3%DA%A9%D8%B1%D9%88%D9%84%20%EF%BD%9C%20%23scrollable%20%23frames%20%23tkinter.mp4.zip) `31.3MB`
+
+- 🗜️ [جلسه 28： آموزش #تیکینتر صفر تا صد ｜‌‌ آموزش فریم های قابل اسکرول ｜ #scrollable #frames #tkinter.mp4.z01](https://github.com/Sadramhp/downloader1/raw/main/dl/%D8%AC%D9%84%D8%B3%D9%87%2028%EF%BC%9A%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%23%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%EF%BD%9C%E2%80%8C%E2%80%8C%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D9%81%D8%B1%DB%8C%D9%85%20%D9%87%D8%A7%DB%8C%20%D9%82%D8%A7%D8%A8%D9%84%20%D8%A7%D8%B3%DA%A9%D8%B1%D9%88%D9%84%20%EF%BD%9C%20%23scrollable%20%23frames%20%23tkinter.mp4.z01) `95.0MB`
+
+- 🗜️ [جلسه 28： آموزش #تیکینتر صفر تا صد ｜‌‌ آموزش فریم های قابل اسکرول ｜ #scrollable #frames #tkinter.mp4.zip](https://github.com/Sadramhp/downloader1/raw/main/dl/%D8%AC%D9%84%D8%B3%D9%87%2028%EF%BC%9A%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%23%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%EF%BD%9C%E2%80%8C%E2%80%8C%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D9%81%D8%B1%DB%8C%D9%85%20%D9%87%D8%A7%DB%8C%20%D9%82%D8%A7%D8%A8%D9%84%20%D8%A7%D8%B3%DA%A9%D8%B1%D9%88%D9%84%20%EF%BD%9C%20%23scrollable%20%23frames%20%23tkinter.mp4.zip) `31.3MB`
+
+- 🎬 [جلسه 28： آموزش #تیکینتر صفر تا صد ｜‌‌آموزش اسکرول کردن در #تیکینتر ｜ #python #tkinter #scroll.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/%D8%AC%D9%84%D8%B3%D9%87%2028%EF%BC%9A%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%23%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%EF%BD%9C%E2%80%8C%E2%80%8C%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D8%A7%D8%B3%DA%A9%D8%B1%D9%88%D9%84%20%DA%A9%D8%B1%D8%AF%D9%86%20%D8%AF%D8%B1%20%23%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%EF%BD%9C%20%23python%20%23tkinter%20%23scroll.mp4) `91.8MB`
+
+- 🎬 [جلسه 29： آموزش #تیکینتر صفر تا صد ｜‌‌ کار با چند #پنچره_در_تیکینتر｜ #windows_tkinter.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/%D8%AC%D9%84%D8%B3%D9%87%2029%EF%BC%9A%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%23%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%EF%BD%9C%E2%80%8C%E2%80%8C%20%DA%A9%D8%A7%D8%B1%20%D8%A8%D8%A7%20%DA%86%D9%86%D8%AF%20%23%D9%BE%D9%86%DA%86%D8%B1%D9%87_%D8%AF%D8%B1_%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%EF%BD%9C%20%23windows_tkinter.mp4) `75.8MB`
+
+---
+
+
 ### 📅 2026-04-29 23:36 IR
 - 🗜️ [15： آموزش صفر تا صد کتابخانه ی #tkinter رابط گرافیکی با پایتون مبحث layout.mp4.zip](https://github.com/Sadramhp/downloader1/raw/main/dl/15%EF%BC%9A%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%DA%A9%D8%AA%D8%A7%D8%A8%D8%AE%D8%A7%D9%86%D9%87%20%DB%8C%20%23tkinter%20%D8%B1%D8%A7%D8%A8%D8%B7%20%DA%AF%D8%B1%D8%A7%D9%81%DB%8C%DA%A9%DB%8C%20%D8%A8%D8%A7%20%D9%BE%D8%A7%DB%8C%D8%AA%D9%88%D9%86%20%D9%85%D8%A8%D8%AD%D8%AB%20layout.mp4.zip) `732KB`
 
