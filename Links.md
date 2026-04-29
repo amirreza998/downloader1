@@ -2,7 +2,7 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
-### 📅 2026-04-29 22:08 IR
+### 📅 2026-04-29 22:08 IR تسته
 - 🎬 [جلسه 3 از آموزش صفر تا صد کتابخانه ی #tkinter برای ساخت رابط گرافیکی با پایتون مبحث tkinter variable.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/%D8%AC%D9%84%D8%B3%D9%87%203%20%D8%A7%D8%B2%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%DA%A9%D8%AA%D8%A7%D8%A8%D8%AE%D8%A7%D9%86%D9%87%20%DB%8C%20%23tkinter%20%D8%A8%D8%B1%D8%A7%DB%8C%20%D8%B3%D8%A7%D8%AE%D8%AA%20%D8%B1%D8%A7%D8%A8%D8%B7%20%DA%AF%D8%B1%D8%A7%D9%81%DB%8C%DA%A9%DB%8C%20%D8%A8%D8%A7%20%D9%BE%D8%A7%DB%8C%D8%AA%D9%88%D9%86%20%D9%85%D8%A8%D8%AD%D8%AB%20tkinter%20variable.mp4) `28.6MB`
 
 ---
