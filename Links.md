@@ -67,10 +67,7 @@
 
 - 🎬 [جلسه 29： آموزش #تیکینتر صفر تا صد ｜‌‌ کار با چند #پنچره_در_تیکینتر｜ #windows_tkinter.mp4](https://github.com/Sadramhp/downloader1/raw/main/dl/%D8%AC%D9%84%D8%B3%D9%87%2029%EF%BC%9A%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%23%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%EF%BD%9C%E2%80%8C%E2%80%8C%20%DA%A9%D8%A7%D8%B1%20%D8%A8%D8%A7%20%DA%86%D9%86%D8%AF%20%23%D9%BE%D9%86%DA%86%D8%B1%D9%87_%D8%AF%D8%B1_%D8%AA%DB%8C%DA%A9%DB%8C%D9%86%D8%AA%D8%B1%EF%BD%9C%20%23windows_tkinter.mp4) `75.8MB`
 
----
 
-
-### 📅 2026-04-29 23:36 IR
 - 🗜️ [15： آموزش صفر تا صد کتابخانه ی #tkinter رابط گرافیکی با پایتون مبحث layout.mp4.zip](https://github.com/Sadramhp/downloader1/raw/main/dl/15%EF%BC%9A%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%DA%A9%D8%AA%D8%A7%D8%A8%D8%AE%D8%A7%D9%86%D9%87%20%DB%8C%20%23tkinter%20%D8%B1%D8%A7%D8%A8%D8%B7%20%DA%AF%D8%B1%D8%A7%D9%81%DB%8C%DA%A9%DB%8C%20%D8%A8%D8%A7%20%D9%BE%D8%A7%DB%8C%D8%AA%D9%88%D9%86%20%D9%85%D8%A8%D8%AD%D8%AB%20layout.mp4.zip) `732KB`
 
 - 🗜️ [15： آموزش صفر تا صد کتابخانه ی #tkinter رابط گرافیکی با پایتون مبحث layout.mp4.z01](https://github.com/Sadramhp/downloader1/raw/main/dl/15%EF%BC%9A%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D8%B5%D9%81%D8%B1%20%D8%AA%D8%A7%20%D8%B5%D8%AF%20%DA%A9%D8%AA%D8%A7%D8%A8%D8%AE%D8%A7%D9%86%D9%87%20%DB%8C%20%23tkinter%20%D8%B1%D8%A7%D8%A8%D8%B7%20%DA%AF%D8%B1%D8%A7%D9%81%DB%8C%DA%A9%DB%8C%20%D8%A8%D8%A7%20%D9%BE%D8%A7%DB%8C%D8%AA%D9%88%D9%86%20%D9%85%D8%A8%D8%AD%D8%AB%20layout.mp4.z01) `95.0MB`
